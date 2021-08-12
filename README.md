@@ -1,4 +1,4 @@
-![icon](https://user-images.githubusercontent.com/88816011/129165891-4fc922d8-a2b3-408f-b13c-e369c9c558a4.PNG)
+![Youtubr channel banner](https://user-images.githubusercontent.com/88816011/129173752-d6148e5f-86bf-4706-9019-d182da2b02d2.png)
 
 # Rules | Divyansh Sood Official Discord Server
 
