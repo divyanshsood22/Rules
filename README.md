@@ -2,4 +2,5 @@
 
 # Rules | Divyansh Sood Official Discord Server
 
-#1 Rest everyone in the server
+#1 We don't promote servers so please don't disturb us. Only Owner and Management can promote if they want and don't force them on this. #NoPromotions
+#2 Be respectful to everyone.
