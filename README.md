@@ -28,4 +28,4 @@
 
 ` ● ` Forms :- [Staff Apply](https://docs.google.com/forms/d/e/1FAIpQLSduLphzr2tyLfreZgfPMtIGE93bM-91P4jGN56Geb7y1Zl_Yg/viewform) and [Ban Appeal](https://forms.gle/HtgWT4YFVaUJASTy6).
 
->>> Everything doesn't need to be mentioned in rules you need to use common sense as well. We expect all the members to be humble and respectful towards each other as well as welcoming towards the new members.
+> Everything doesn't need to be mentioned in rules you need to use common sense as well. We expect all the members to be humble and respectful towards each other as well as welcoming towards the new members.
