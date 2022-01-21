@@ -6,7 +6,7 @@
 
 ` #2 ` Be respectful to everyone.
 
-` #3 ` No Politics talks or topics should be raised.
+` #3 ` No Politics / inappropriate talks or topics should be raised.
 
 ` #4 ` No Racism, No Homophobia, and No Pedophilia, usernames, and statuses that have it will be an instant ban, and any jokes made about it will be an instant ban.
 
