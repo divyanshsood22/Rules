@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/88816011/129174500-d3dd1c5d-b845-4806-b92f-d157196f0cfa.png)
+![Rules](https://user-images.githubusercontent.com/88816011/166413019-4e20dac0-885b-4e35-abe9-a8d765d2aed4.png)
 
 # Rules | Divyansh Sood Official Discord Server
 
